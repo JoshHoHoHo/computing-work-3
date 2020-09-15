@@ -1,2 +1,2 @@
 Section 1: First lesson
-"Ok class take out your math workbook, please copy down the scheldule for your tests and exams this year." Ms Ng, my mathematics teacher instructed. She wore a pair of red spectacles. It was easily infered that she was strict.
+"Okay, class please take out your math workbook and copy down the scheldule for your tests and exams this year." Ms Ng, my Mathematics teacher instructed. Wearing a pair of red spectacles and a strict demeanour, it was obvious she was not as nice as she seemed...
